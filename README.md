@@ -1,3 +1,3 @@
-# farisfs73x.github.io
+# nimz129.github.io
 
-My CV & Portfolio: https://farisfs73x.github.io
+My CV & Portfolio: https://nimz129.github.io
